@@ -12,5 +12,13 @@ i will not loose for even in a defeat there is a valuable lesson learnt so it ev
 peoples desire and authenticity is very strong.
 doubt is a kiler you have to just know whom you are and what you stand for
 no one changes the world who is obessed.
+the best way through let in 
+if there is no struggle there is no process.
+worrry is a misuse of imagination.
+courage is most impotant of all virtues because without courage you can't practice any other virtues consistenly.
+
+
+
+
 
 
