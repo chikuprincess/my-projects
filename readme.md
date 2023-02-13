@@ -16,6 +16,9 @@ the best way through let in
 if there is no struggle there is no process.
 worrry is a misuse of imagination.
 courage is most impotant of all virtues because without courage you can't practice any other virtues consistenly.
+if it makes you nervous you re doing it right.
+what you do makes a
+
 
 
 
